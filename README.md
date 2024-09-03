@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Ralph-denz
+- 👀 I’m interested in exploring new things and technologies
+- 🌱 I’m currently learning python,Javascript
+- 💞️ I’m looking to collaborate on my projects
+- 📫 How to reach me, Just contact at my social media accounts
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Butterflies can taste with their feet. They have taste sensors on their feet that help them identify food and suitable plants for laying their eggs.
